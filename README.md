@@ -1,6 +1,6 @@
 <h3><a href="https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4" target=_blank>法轮功李洪志照片</a>发现了：
 <br>当前的坏宅附体男鬼魂信息报道：
-<br>(十恶不赦)宇宙通缉犯(鬼,魔,色鬼,色魔)：
+<br>【迫害法轮功的】／(十恶不赦)宇宙通缉犯(鬼,魔,色鬼,色魔)：
 <br>$\textsf{\color{red}{[天天向全世界][公开宣传][杀男人][强奸女人]：}}$
 <br>
 <br>最大号鬼,延鬼魔,在某个男人体内(人心身体内正中央)。
